@@ -6,7 +6,7 @@ title: Contact Abhinav Saxena
 <div id="contact">
   <h1 class="pageTitle">Contact Me</h1>
   <div class="contactContent">
-    <br><br>
+    <br>
     <p>Thank you for visiting my web page. If you have any comments/suggestions for me, please feel free to reach out to me by filling the form. </p>
     <p> Thanks!</p>
   </div>
