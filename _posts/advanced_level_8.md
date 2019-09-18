@@ -306,6 +306,88 @@ If you like Edgar Allan Poe and "The Addams Family," you have a taste for mordan
 
 The original meaning of mordant (which comes from the Latin word modere, meaning "to bite or sting,") was that of a physical substance that literally bit into something, such as the one used to set dye into fabrics, or etch lines into a copper plate. Now, mordant generally refers to a dark or biting artistic style, sense of humor, or psychological outlook.
 
+61. raffish(marked by a carefree unconventionality or disreputableness/marked by up-to-dateness in dress and manners)
+Someone raffish is a bit of a scoundrel, carelessly making mischief. Your raffish classmate might constantly play mean practical jokes, always denying responsibility with a charming smile.
+
+If you're raffish, you're a "rake" or a "cad." Though you're pretty much bad news, you pull off your dastardly deeds in an attractive manner. Someone with a raffish look is intriguing as well as disreputable. Raffish comes from riff-raff, "generally undesirable people," from the Medieval French rifle et rafle, "stealing from the bodies of the dead on the battlefield."
+
+It lends a poignant element of foreshadowing — a glimpse of the darkness ahead — to what is otherwise a raffish, freewheeling book.
+
+62. Veracious 
+Someone who is veracious speaks the truth — like your brutally honest friend who always lets you know what she thinks about your outfits, your hairstyle, your lasagna recipe, and your taste in movies.
+Think of a veracious person as someone who is like a witness under oath in a court of law, someone who speaks “the truth, the whole truth and nothing but the truth.” Don’t ask a question of a veracious friend unless you really want to know the answer. The adjective veracious can be applied not just to people but also to things that are true or accurate, such as "a veracious story" or "a veracious statement."
+
+So often when the American plays, tennis becomes a very simple equation: if she gets into her veracious groove she triumphs.
+
+63. prodigal
+Use the adjective prodigal to describe someone who spends too much money, or something very wasteful. Your prodigal spending on fancy coffee drinks might leave you with no money to buy lunch.
+
+Prodigal usually applies to the spending of money. In the Bible, the Prodigal Son leaves home and wastes all his money. You could also use this word to describe something that is very abundant or generous in quantity, such as prodigal praise. Prodigal comes from the Latin word prodigere, "to drive away or waste," combining the prefix prod-, or "forth" and agere, "to drive."
+
+The question remains, though, if anyone will tell Berman whether it’s up to his own standards or if he’ll be stuck in his own bubble, the prodigal songwriter returned and celebrated for that fact alone.
+
+64. mawkish
+Mawkish means excessively sentimental or so sappy it's sickening. Which is how you'd describe two lovebirds gushing over each other or your grandma’s cooing, cheek pinches, and sloppy-lipstick kisses.
+
+The adjective mawkish came into vogue in the 1600s. Oddly enough, it's rooted in the Middle English word maggot and originally meant “sickly or nauseated.” But mawkish eventually evolved to mean something so overly sentimental it makes you sick. It's not a word you hear very often these days, but feel free to use it to describe really lame love poems and annoyingly mushy Valentine's Day cards.
+
+65. profligate
+Profligate, as a noun or as an adjective, implies recklessly wasting your money on extravagant luxury. Profligate behavior is a lot of fun, but you'll regret it later — when you get your charge card bill.
+
+Any time someone behaves in a reckless, amoral, or wasteful way, they are engaging in profligate behavior. It usually refers to financial behavior but can cross over to social activity as well. A person who is a slave to their cravings and whose behavior is unrestrained and selfish can be called a profligate. Extravagantly profligate behavior is often wildly fun but usually comes with a heavy price to pay in the morning, both financially and morally.
+
+If this happens – and the president signs off – this profligate spending would guarantee the return of trillion-dollar annual deficits, something not seen since the Obama-era recession.
+
+66. venerate
+To venerate is to worship, adore, be in awe of. You probably don't venerate your teacher or boss; however, you may act like you do!
+
+The word hasn't come far from its Latin roots in venerari, "to worship." Although you can certainly venerate a deity, a person can deserve it, too. We don't usually venerate our friends: instead, we usually save this feeling for deities or remarkable people who inspire awe. Mother Teresa was venerated for her work with the poor, and Gandhi was venerated for his efforts for peace, but most people aren't venerated for normal stuff like taking out the trash or hanging out on a Saturday.
+
+In Lovecraft’s classic 1926 story The Call of Cthulhu, for example, the Elder Gods from outside space and time are remembered and venerated by “Esquimau diabolists and mongrel Louisianans” — by non-white people, in other words.
+
+67. travesty
+A travesty is a cheap mockery, usually of something or someone serious, such as a travesty of justice.
+
+A travesty is a silly imitation, like a tall young man dressed up like a little old lady. Travesty and transvestite both come from French travesti meaning "dressed in disguise," so it helps to remember the definition of travesty by thinking of that football player in drag. A travesty can be more than that, though. A travesty of justice, for example, is a court case that makes a mockery of the system, or so you might think if the verdict isn't in your favor. There are lots of examples in literature: the book Don Quixote is a travesty of Medieval Romance.
+
+“The biggest travesty,” says Alapatt, “would be if the Toussaint tapes get locked up in litigation and no one ever gets to hear the music.”
+
+68. quotidian
+Quotidian is a fancy way of saying "daily" or "ordinary." Quotidian events are the everyday details of life.
+
+When you talk about the quotidian, you're talking about the little things in life: everyday events that are normal and not that exciting. Going to the store, doing chores, working or going to school, and brushing your teeth are all quotidian. If you take a spaceship to Mars, that would be unusual and extraordinary: the opposite of quotidian.
+
+In the mapped images, life at San Quentin is shown to be rife with contradictions – quotidian and unusual, peaceable yet marked with violence and trauma.
+
+69. propitious (presenting favorable circumstances; likely to result in or show signs of success/auspicious) 
+When the timing of something is propitious, it's likely to turn out well. A propitious time for taking a big test is when you've studied hard and had a good night's sleep.
+
+If you believe in astrology, you might check your horoscope to settle on a propitious day for your wedding. A propitious moment to ask your parents about that spring break trip to Cancun might be when you've just unveiled your straight-A report card.
+
+And propitious humidity levels were reached when the opposition formed a coalition indirectly involving the Kurds and managed to nominate a charismatic, unifying figure to run against the AKP’s tedious candidate.
+
+70. diffident
+The adjective diffident describes someone who is shy and lacking in self-confidence. If you are shy and have a diffident manner, you should probably not choose one of these professions: substitute teacher, stand-up comic, or lion-tamer.
+
+Diffident can describe someone who is reserved and restrained. Some may mistake your diffident manner for coolness or aloofness. Although it may be in your nature to be diffident, you will find it impossible to remain so when you visit my family. They are a big, noisy, outgoing bunch and they will make you join in the fun until you let loose and open up. Don't say you weren't warned!
+
+In reality, Mr. Bayh was less diffident than disoriented by being thrust into the national spotlight.
+
+71. Preclude (prevent)
+To preclude something is to prevent it from happening. A muzzle precludes a dog from biting.
+
+This is a very formal word, but it has a simple meaning: when something is precluded, it can't happen. See the prefix pre in preclude and in prevent? It is signaling that these words are all about things done before another action would happen — to make it impossible. Staying away from water precludes the possibility of drowning, though it also precludes any chance of having fun swimming.
+
+72. askance (with a side or oblique glance)
+You may have trouble watching a gory horror movie, but you also won't be able to look away. Find a happy medium by looking askance, or subtly out of the corner of your eye.
+
+First used in the 1500's, no one is quite sure where the cockeyed, slanting adverb askance came from. Some people suspect that it evolved from the Latin a scancio, meaning “obliquely, slantingly,” while others argue that it’s just a variant of the word askew. How fitting for a word that describes a suspicious or distrusting manner of looking that we can't trace its etymology with any surety. 
+
+
+
+
+
+
 
 ---- Article 1 ~ 20 words ~
 Trump in general rejects the Iran meeting and looks past the sanctions to 'restore deterrence'.. In the light of recent attacks of drones over the military bases as increasing the oil prices,
